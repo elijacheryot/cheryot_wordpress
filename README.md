@@ -1,0 +1,1 @@
+# cheryot_wordpress
